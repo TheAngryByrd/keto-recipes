@@ -28,7 +28,7 @@
 - 1/2 Tablespoon of banana flavor extract
 
 
-### Steps:
+### Steps
 
 1. Put about 2 oz amount of heavy whipping cream in the bottom on the mason jar. This is just enough to help keep the dry ingredients from sticking to the bottom.
 2. Add all other ingredients
