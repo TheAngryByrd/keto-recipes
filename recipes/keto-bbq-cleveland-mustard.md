@@ -4,7 +4,7 @@
 ## Supplies and ingredients
 
 - 1 cup Stadium (or Ballpark) Mustard
-- 1/2 cup [brown allulose](brown-alluose.md)
+- 1/2 cup [brown allulose](brown-allulose.md)
 - 1/3 cup apple cider vinegar (reduce or increase to for tanginess)
 - 1/3 cup of meat drippings (or 2 tablespoons butter)
 - 1 tablespoon worcestershire sauce
